@@ -9,7 +9,7 @@ Streamer • Gaming & Tech Enthusiast
 </p>
 
 <p align="center">
-  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb3pwbGR4Y2Y4M3N2cTdzZ3Z1dGRvMmYxOGZ1emFnbm9yNmJrbm5xZCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/l0MYt5jPR6QX5pnqM/giphy.gif" width="300"/>
+  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ2NpbTRxZnB0MGQ2b2E0d2o5Y3o0eG11a3h6ZWx4cmZ5N2Z0YmJ3ZCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/3ohs4BSacFKI7A717y/giphy.gif" width="320"/>
 </p>
 
 ---

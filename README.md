@@ -22,7 +22,7 @@ Streamer • Gaming & Tech Enthusiast
 - 🎥 **Streamer & content creator** (gaming, tech, coding vibes)
 - 🚀 Love building apps, tools, and digital experiences
 - ⚡ Fun fact: I enjoy late-night coding & gaming sessions 🎧
-- 🎧 TWICE SUPREMACY
+
 
 ---
 

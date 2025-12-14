@@ -53,9 +53,9 @@ Streamer • Gaming & Tech Enthusiast
 ---
 
 ## 🤝 Let's Connect
-- 💼 LinkedIn: **(isi LinkedIn kamu)**
-- 📧 Email: **(email kamu)**
-- 🎥 Stream Link: **(link streaming kamu)**
+- 💼 LinkedIn: **https://www.linkedin.com/in/musyafa-al-adn-000437252/?originalSubdomain=id**
+- 📧 Email: **musyafaal08@gmail.com**
+- 🎥 Stream Link: **https://www.tiktok.com/@midasside**
 
 ---
 
